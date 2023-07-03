@@ -14,3 +14,5 @@ demon's souls
 blood borne
 
 sekiro
+
+Metal Wolf Chaos XD
